@@ -1,4 +1,4 @@
-
+Adobe Illustrator for macOS vip Preset: export to SVG & custom brushes is the best Adobe Illustrator for macOS preset, featuring export to SVG and custom brushes. Safe, efficient,
 
 
 
